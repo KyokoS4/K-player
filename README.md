@@ -1,0 +1,1 @@
+All of this things posted here for me are all only  for hobbie and when i have free time xd, im not good developing but sometimes i want so this is my presonal improvement and my way to something, so if u found this shit mp3 player and want to say smthg go ahead
